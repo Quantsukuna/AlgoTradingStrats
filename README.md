@@ -1,2 +1,4 @@
 # AlgoTradingStrats
-akjsdhkjahskakjsdhkajhsdkjahksjdhd
+
+
+P1 : alksjdlkasjdlkjalksjlkd
